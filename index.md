@@ -1,0 +1,1 @@
+chou ![PepeLaugh](https://cdn.betterttv.net/emote/5c548025009a2e73916b3a37/3x)
